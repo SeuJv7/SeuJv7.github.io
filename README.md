@@ -1,1 +1,1 @@
-# SeuJv7.github.io
+http://SeuJv7.github.io
